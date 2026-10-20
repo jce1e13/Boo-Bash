@@ -1,2 +1,1 @@
-# Boo-Bash
-a school dance which acts like a middle school underpaid dance.
+whelp i hate Halloween school dances-what’s worse is its like a Intermediate underpaid staff dance-its stupid -_- i am dressing up as gene from Bob’s Burgers and i was happy about the costume until my sister got her Tina Belcher outfit tried on-i died. sense my family is known for their overly large foreheads-the wig looked hideous. so im scarred for my gene outfit, help me :(
